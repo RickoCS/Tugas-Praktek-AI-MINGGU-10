@@ -1,0 +1,1 @@
+# Tugas-Praktek-AI-MINGGU-10
